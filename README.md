@@ -1,0 +1,2 @@
+# SuicideRat-CR4CKED-STEALER-CLIPPER-HRDP-KEYLOGGER-
+Best Private RAT in 2022! HVNC (no shitty Tinynuke) | STEALER | | CLIPPER | | HRDP | | KEYLOGGER | 
